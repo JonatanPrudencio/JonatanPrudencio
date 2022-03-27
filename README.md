@@ -1,3 +1,4 @@
+![ecomm-jnt](https://user-images.githubusercontent.com/88946004/160306294-32bb11ad-d165-4542-bcff-257a031346a4.gif)
 ### Hi there 👋
 
 <!--
